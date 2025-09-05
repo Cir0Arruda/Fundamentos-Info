@@ -1,5 +1,3 @@
 # Fundamentos-Info
 Aulas do COTIL
-
-
-Chora bb
+e os codiguins
